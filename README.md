@@ -1,1 +1,1 @@
-# vive con intencion podrias morir mañana
+# La paz es el camino a la felicidad mas constante
